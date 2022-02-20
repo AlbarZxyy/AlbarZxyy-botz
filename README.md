@@ -1,0 +1,2 @@
+# AlbarZxyy-botz
+Pemula
